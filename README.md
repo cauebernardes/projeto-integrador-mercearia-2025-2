@@ -1,0 +1,1 @@
+# projeto-integrador-mercearia-2025-2
